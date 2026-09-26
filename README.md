@@ -4,7 +4,7 @@
 
 ### AI & Data Science Student | Turning Data Into Decisions
 
-**Artificial Intelligence and Data Science @ Saylani Mass IT Training (SMIT)**
+**Artificial Intelligence and Data Science **
 
 </div>
 
